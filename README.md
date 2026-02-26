@@ -20,5 +20,5 @@ Real world problem solving with different approach Excite me (Dopamine rush 😎
 - 👍 I'm good at ...
 My main tools are Git, GitHub, VScode, Linex and many more.... to come.
 
-My quote is "The less you know the happier you are"
+My quote is "The less you know the happier you are😉 "
 
